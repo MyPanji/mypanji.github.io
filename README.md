@@ -1,0 +1,1 @@
+# mypanji.github.io
